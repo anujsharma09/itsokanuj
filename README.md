@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Anuj Sharma
-- 👀 I’m interested in Anime 
+- 👀 I’m interested in Anime & Making Memes
 - 🌱 I’m currently learning Computer Applications 
 - 📫 How to reach me:
    -twitter: @itsokanuj 
